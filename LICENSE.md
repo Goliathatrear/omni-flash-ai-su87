@@ -1,4 +1,4 @@
-# 
+# Profissional Omni Flash predefinições. Com grafos de conhecimento e análise de documentos — otimizado para máximo desempenho e eficiência.
 
 
 
